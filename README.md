@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AugustTr11
+- 👀 Computer Science is my minor in college but I spent more time with it than my major :) 
+- 📫 You can reach me at: august.tran11@gmail.com 
